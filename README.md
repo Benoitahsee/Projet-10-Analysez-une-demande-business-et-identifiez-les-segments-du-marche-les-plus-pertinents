@@ -29,6 +29,6 @@ RAS
 
 **Soutenance**
 
-Remarques : Soutenance très bien réalisée. Le storytelling de l'étudiant est intéressant et captivant. Bravo!
+Remarques : Soutenance très bien réalisée. Le storytelling de l'étudiant est intéressant et captivant. Bravo !
 
 
